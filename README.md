@@ -4,7 +4,6 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ?
 e-Mail=srgnakts@gmail.com
-Phone=+90 551 868 83 31
 linkedin=https://www.linkedin.com/in/sergen-aktas/
 
 About Me
